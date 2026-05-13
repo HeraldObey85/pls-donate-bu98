@@ -1,4 +1,4 @@
-#  
+#  Experience pls donate like never before with pls donate Scripts advanced, the #1 Script. Includes teleport and instant win for unbeatable performance.
 
 
 
